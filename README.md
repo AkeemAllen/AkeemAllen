@@ -1,1 +1,1 @@
-I engineer, therefore I am
+FullStack Software Developer/Engineer specializing in Web Applications
